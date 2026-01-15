@@ -1,8 +1,8 @@
-# Rahul Kumar | Software Test Engineer (1.7+ Years Experience)
+# Rahul Kumar Prasad | Software Test Engineer (1.7+ Years Experience)
 
 📍 Delhi, India  
 📧 Email: rahulkr1647@gmail.com  
-🔗 GitHub: https://github.com/rahulkumar1647 
+🔗 GitHub: https://github.com/rahulkumar1647  
 📞 Phone: Shared in Resume 
 
 ---
