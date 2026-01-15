@@ -10,7 +10,7 @@
 📍 Delhi, India  
 📧 Email: **rahulkr1647@gmail.com**  
 🔗 GitHub: https://github.com/rahulkumar1647  
-📞 Phone: **Shared in Resume / Available on request**
+📞 Phone: **Shared in Resume**
 
 ---
 
