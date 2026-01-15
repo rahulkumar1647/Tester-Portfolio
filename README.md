@@ -108,8 +108,7 @@ I have working knowledge of **Agile Methodology (Scrum)** and actively collabora
 
 ## 📞 Contact
 📧 Email: **rahulkr1647@gmail.com**  
-🔗 GitHub: https://github.com/rahulkumar1647  
-📞 Phone: **Shared in Resume / Available on request**
+🔗 GitHub: https://github.com/rahulkumar1647 
 
 ---
 ✅ Thank you for visiting my QA Portfolio!
